@@ -1,0 +1,2 @@
+# stoopid
+https://someidiot.codes
